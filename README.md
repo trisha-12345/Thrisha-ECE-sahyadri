@@ -1,1 +1,0 @@
-# Thrisha-ECE-sahyadri
